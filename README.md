@@ -1,1 +1,1 @@
-# 40021066_MiniProject
+# 40021066_MiniProject_TRN
